@@ -1,2 +1,12 @@
 # Turk-gmailbruteforce
+
 TURKCE GMAIL BRUTE FORCE
+
+TÜRKÇE OLAN TEK BRUTE FORCE 
+
+TÜRKÇE WORDLİST ALMAK İÇİN https://t.me/ceharsivim ya da www.instagram.com/enesturan.py ULAŞABİLİRSİNZ
+
+YAPILAN ŞEYLERDEN SORUMLULUK KABUL ETMİYORUM !!
+
+HAYIRLI MAİL ÇALMALAR GENÇLER SEVİYORUM SİZİ <3
+
